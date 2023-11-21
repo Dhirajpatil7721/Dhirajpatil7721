@@ -9,4 +9,4 @@ Talking about Personal Stuffs:
 - 👀 I’m interested in Web-Devlopment
 - 📫 How to reach me...
   email      -dhirajpatil7721@gmail.com
-  linkedin   -dhiraj-patil-046646230
+  linkedin   -https://in.linkedin.com/in/dhiraj-patil-046646230?original_referer=https%3A%2F%2Fwww.google.com%2F
